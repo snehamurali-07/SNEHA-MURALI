@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SNEHA-MURALI
-- 👀 I’m interested in coding and web development.
+- 👀 I’m interested in coding and cyber security.
 - 🌱 I’m currently pursuing my BTECH Computer Science and Engineering(Cyber Security)
 - 📫 How to reach me-www.linkedin.com/in/sneha-murali-55b375295
 
